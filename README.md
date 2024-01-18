@@ -1,1 +1,1 @@
-# briviba
+# BRĪVĪBA
